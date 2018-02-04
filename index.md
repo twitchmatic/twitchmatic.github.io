@@ -76,7 +76,9 @@ We love you.  - GC
 * * *
 
 >Charis.
-You literally have so many things going on that I could talk about it’s hard to nail down just a few. You’re smart, funny, sexy, loyal, interested in others, you’re a leader, sincere, and have a way of communicating that draws people in to be curious about what you’re saying. And fortunately, you always have something to say. I love it. You are a source of love and light. You have an intense capacity for life inside of you, and even when you are low, and feel like shit, you are able to lift others spirits. You are so bloody generous. You let your full cup of charisma, love, bright lights and dance moves spill out.  I always feel so blessed when I get to spend time with you; I feel welcomed by your generous spirit and the conversation we had this summer when I first arrived was absolutely precious. It’s been incredible getting to witness your love for Dani and see it grow more and more. I love you, and I hope I will always be part of your life. ❤️❤️❤️
+You literally have so many things going on that I could talk about it’s hard to nail down just a few. You’re smart, funny, sexy, loyal, interested in others, you’re a leader, sincere, and have a way of communicating that draws people in to be curious about what you’re saying. And fortunately, you always have something to say. I love it. You are a source of love and light. You have an intense capacity for life inside of you, and even when you are low, and feel like shit, you are able to lift others spirits. You are so bloody generous. You let your full cup of charisma, love, bright lights and dance moves spill out.  I always feel so blessed when I get to spend time with you; I feel welcomed by your generous spirit and the conversation we had this summer when I first arrived was absolutely precious. It’s been incredible getting to witness your love for Dani and see it grow more and more. I love you, and I hope I will always be part of your life.
+<br>
+❤️❤️❤️
 <br>
 <br>
 Happy happy happy birthday! - JP
