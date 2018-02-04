@@ -84,5 +84,4 @@ You literally have so many things going on that I could talk about it’s hard t
 Happy happy happy birthday! - JP
 
 * * *
-
-Love you Charis!!
+<br>
