@@ -44,7 +44,7 @@ Big hugs from all of us. - CW
 >Dearest Charis,
 <br>
 <br>
-I’ve reluctantly come to accept that life has seasons, and people wonder in and out of each others lives at points along the way. I want to say how fondly I look back at the season where you were a part of our family every week, taking care of our little boy. You loved him well, and he loved you - and it always brought me joy to have you in our home. I look forward to new seasons in life where our paths may cross frequently again. In the mean time, I am thankful for you. Thankful for your spunk, honesty, and vulnerability. Thankful for your strength, your willingness to speak out against injustice, and speak up for those who can’t speak up for themselves. You are an awesome human, loved by God and loved by others.
+I’ve reluctantly come to accept that life has seasons, and people wander in and out of each others lives at points along the way. I want to say how fondly I look back at the season where you were a part of our family every week, taking care of our little boy. You loved him well, and he loved you - and it always brought me joy to have you in our home. I look forward to new seasons in life where our paths may cross frequently again. In the mean time, I am thankful for you. Thankful for your spunk, honesty, and vulnerability. Thankful for your strength, your willingness to speak out against injustice, and speak up for those who can’t speak up for themselves. You are an awesome human, loved by God and loved by others.
 <br>
 <br>
 So many Happy Birthday’s. -DW
