@@ -84,4 +84,28 @@ You literally have so many things going on that I could talk about it’s hard t
 Happy happy happy birthday! - JP
 
 * * *
+
+>Charis my love, here are just a few of the many things that make me think of you and all that you bring into the world:
+
+>My great hope is to laugh as much as I cry; to get my work done and try to love somebody and have the courage to accept the love in return.  - Maya Angelou
+
+>THREE THINGS TO REMEMBER
+<br>
+<br>
+As long as you're dancing, you can  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;break the rules.  
+Sometimes breaking the rules is just  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;extending the rules.  
+<br>
+Sometimes there are no rules.  
+<br>
+\-Mary Oliver
+
+<blockquote class="imgur-embed-pub" lang="en" data-id="a/4HOOV"><a href="//imgur.com/4HOOV"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+
+>I love you more than all the molecules of bath water that have been poured and will continue to be poured for the existence of this planet!
+MUAH! - CW
+
+* * *
+
 <br>
