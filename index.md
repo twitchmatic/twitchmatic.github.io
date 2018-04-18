@@ -6,7 +6,7 @@ These words below are given in love by people in your life who recognize who you
 
 * * *
 
->Dearest Charis,
+>Dearest Amy,
 <br>
 <br>
 TLDR: I think you’re pretty swell.
@@ -22,7 +22,7 @@ Your Ride or Die xoxo
 
 * * *
 
->Charis.  
+>Amy.  
 <br>
 I have been so blessed to have gotten to know you and be your friend.  Your passion, committment, penchant for action and insights have challenged and encouraged me.  You are doing life, you are making it, you are moving forward, you are growing, you are loving and you are being.  
 <br>
@@ -41,7 +41,7 @@ Big hugs from all of us. - CW
 
 * * *
 
->Dearest Charis,
+>Dearest Amy,
 <br>
 <br>
 I’ve reluctantly come to accept that life has seasons, and people wander in and out of each others lives at points along the way. I want to say how fondly I look back at the season where you were a part of our family every week, taking care of our little boy. You loved him well, and he loved you - and it always brought me joy to have you in our home. I look forward to new seasons in life where our paths may cross frequently again. In the mean time, I am thankful for you. Thankful for your spunk, honesty, and vulnerability. Thankful for your strength, your willingness to speak out against injustice, and speak up for those who can’t speak up for themselves. You are an awesome human, loved by God and loved by others.
@@ -61,7 +61,7 @@ All our best wishes for the way ahead. - VC
 <br>
 \- Ellen DeGeneres
 
->I see this in you Charis.  You have such great compassion and give so much of yourself to others.  You not only desire but are determined to make the world a better place and the people in it better people.  I am so grateful to have you in my life.  Sometimes you need self-care as well.  So the following quote is very appropriate for you.  
+>I see this in you Amy.  You have such great compassion and give so much of yourself to others.  You not only desire but are determined to make the world a better place and the people in it better people.  I am so grateful to have you in my life.  Sometimes you need self-care as well.  So the following quote is very appropriate for you.  
 <br>
 We love you.  - GC
 
@@ -71,11 +71,11 @@ We love you.  - GC
 
 * * *
 
->Words that describe Charis:  Charismatic, passionate, having fortitude, strong, brave, interesting, loving, engaging. You are a beautiful and inspiring creature, and we are lucky to have you part of our world  ♡♡♡ - AD
+>Words that describe Amy:  Charismatic, passionate, having fortitude, strong, brave, interesting, loving, engaging. You are a beautiful and inspiring creature, and we are lucky to have you part of our world  ♡♡♡ - AD
 
 * * *
 
->Charis.
+>Amy.
 You literally have so many things going on that I could talk about it’s hard to nail down just a few. You’re smart, funny, sexy, loyal, interested in others, you’re a leader, sincere, and have a way of communicating that draws people in to be curious about what you’re saying. And fortunately, you always have something to say. I love it. You are a source of love and light. You have an intense capacity for life inside of you, and even when you are low, and feel like shit, you are able to lift others spirits. You are so bloody generous. You let your full cup of charisma, love, bright lights and dance moves spill out.  I always feel so blessed when I get to spend time with you; I feel welcomed by your generous spirit and the conversation we had this summer when I first arrived was absolutely precious. It’s been incredible getting to witness your love for Dani and see it grow more and more. I love you, and I hope I will always be part of your life.
 <br>
 ❤️❤️❤️
@@ -85,7 +85,7 @@ Happy happy happy birthday! - JP
 
 * * *
 
->Charis my love, here are just a few of the many things that make me think of you and all that you bring into the world:
+>Amy my love, here are just a few of the many things that make me think of you and all that you bring into the world:
 
 >My great hope is to laugh as much as I cry; to get my work done and try to love somebody and have the courage to accept the love in return.  - Maya Angelou
 
